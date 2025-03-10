@@ -253,7 +253,7 @@ Let me know if you need more details! 😊🚀
 
 
 
-#various types of databases
+# various types of databases
 
 
 
